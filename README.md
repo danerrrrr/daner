@@ -1,2 +1,1 @@
-# daner
 <a href="https://ibb.co/27KCjCg1"><img src="https://i.ibb.co/5WcS5SBg/fcef021fca27f6c2abe149a6d151d69b-1.jpg" alt="fcef021fca27f6c2abe149a6d151d69b-1" border="0" /></a>
